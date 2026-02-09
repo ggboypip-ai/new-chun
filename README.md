@@ -1,1 +1,1 @@
-▶ [Play the game](https://ggboypip-ai.github.io/-/)
+▶ [Play the game](https://ggboypip-ai.github.io/new-chun/)
